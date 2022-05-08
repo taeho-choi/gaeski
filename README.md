@@ -13,7 +13,7 @@
 
 ### 시연 영상
 
-[KakaoTalk_20220430_163520172.mp4](https://youtu.be/EU-EF-leQUg)
+[https://youtu.be/EU-EF-leQUg](https://youtu.be/EU-EF-leQUg)
 
 # 기획 내용
 
