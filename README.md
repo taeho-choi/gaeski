@@ -13,7 +13,7 @@
 
 ### 시연 영상
 
-[https://youtu.be/EU-EF-leQUg](https://youtu.be/EU-EF-leQUg)
+https://youtu.be/nhNzuL_DeT8
 
 # 기획 내용
 
